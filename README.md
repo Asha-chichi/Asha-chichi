@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...programming and Graphic Design
 - 📫 How to reach me: ...chichiasha02@gmail.com
 - 😄 Pronouns: ...She/her
--->
+
